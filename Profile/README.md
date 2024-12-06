@@ -3,7 +3,9 @@
 ## 🌟 Mostbet Casino: Jogue no Cassino Online Legal em Portugal
 
 A [**Mostbet**](https://tinyurl.com/ehn56am4) foi fundada em 2009 e recebe jogadores de mais de 90 países. Propriedade da Venson Ltd. com sede em Chipre, a casa de apostas é treinada na Europa Oriental e regulamentada em Curaçao e oferece muitos bônus e códigos promocionais.
-
+<a href="https://tinyurl.com/ehn56am4">
+![mostbet-pt](https://github.com/user-attachments/assets/b721bd08-4833-4b83-96c2-9f8e5922f313)
+</a>
 ### A aposta mais alta
 Através da plataforma de apostas desenvolvida pela BETB2B, está disponível o registo com um clique, sendo também possível o registo mais tradicional via e-mail ou telefone. A MostBet oferece mais de 15.000 eventos por semana, juntamente com probabilidades superaltas e transmissão ao vivo gratuita de todos os principais jogos. Em termos de seleções pré-jogo, a MostBet oferece uma ampla variedade de eventos em mais de 20 esportes diferentes. Do futebol e basquete ao bandy e floorball no Mostbet Casino, o pagamento total é de 95%. No futebol, os jogadores podem encontrar mais de 85 tipos de apostas disponíveis nas principais ligas.
 
